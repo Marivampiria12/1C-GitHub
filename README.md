@@ -1,1 +1,1 @@
-# 1C-GitHub
+# Mariana Cristina Silva Dos Santos
